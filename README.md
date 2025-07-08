@@ -10,4 +10,4 @@
 
 本页面提供欧美日韩及国产一区热门成人片源，包括最新的特黄大片、热亚洲一级视频及丰满麻豆内容。所有影片均支持高清视频播放，无需下载，画质流畅，适合各类设备播放。每周更新资源，确保观众获得最新最热的视频体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan4 ）</span>
